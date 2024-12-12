@@ -1,1 +1,1 @@
-# juegochi.github.io
+chi.github.io
